@@ -1,1 +1,1 @@
-# Hello fellas I'm Deenadayalan not the smart worker
+# Hello ppl I'm Deenadayalan not the smart worker
